@@ -21,3 +21,4 @@ Try and crack this too if you have time
 
 ꍦ鱡𓉻鹨鑳𐙯鑥鹭鵧鑴驢陟ꍟ𓉩ꍴ鑥陨饲𓁥ᕽ
 
+<img width="100" height="100" alt="hidden" src="https://github.com/user-attachments/assets/2f3ab389-1740-47cf-bbae-fc9cd368932c" />
