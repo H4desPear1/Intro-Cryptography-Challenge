@@ -17,7 +17,7 @@ Key Word: Kryptos
 bdc87b9c894da5168059e00ebffb9077
 
 ### Bonus
-Try and crack this too if you have time
+Try and crack these too if you have time
 
 ꍦ鱡𓉻鹨鑳𐙯鑥鹭鵧鑴驢陟ꍟ𓉩ꍴ鑥陨饲𓁥ᕽ
 
