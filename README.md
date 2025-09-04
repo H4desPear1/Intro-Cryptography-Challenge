@@ -21,4 +21,6 @@ Try and crack these too if you have time
 
 ꍦ鱡𓉻鹨鑳𐙯鑥鹭鵧鑴驢陟ꍟ𓉩ꍴ鑥陨饲𓁥ᕽ
 
+https://wormhole.app/bLKA7m#DswQxXg-iNxm3zfB8srIcg
+
 <img width="100" height="100" alt="hidden" src="https://github.com/user-attachments/assets/2f3ab389-1740-47cf-bbae-fc9cd368932c" />
